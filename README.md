@@ -1,4 +1,4 @@
-![Header](https://github.com/adminches/adminches/blob/main/assets/dino.gif)
+![Header](https://github.com/adminches/adminches/blob/main/assets/animevibe.gif)
 
 # 🤔 What about me?
 
